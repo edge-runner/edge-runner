@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @warpdancer
+- 👋 Hi, I’m @warpdancer on Twitter
 - 👀 I’m interested in crypto
 - 🌱 I’m currently learning crypto
 - 💞️ I’m looking to collaborate on crypto
